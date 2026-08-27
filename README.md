@@ -21,7 +21,7 @@
 <img width="49" height="48" alt="914da823" src="https://github.com/user-attachments/assets/95127663-2465-422d-bac0-648346006e61" />  $${\color{#ff0000} ♰ ﹒ ⫘⫘⫘⫘⫘⫘⫘  RED !  ⫘⫘⫘⫘﹒ ⋆  }$$ <img width="47" height="44" alt="c570d12c" src="https://github.com/user-attachments/assets/772b47ec-e78a-4938-9506-d8d6a0e1f73f" /> 
 
 
-<p align="center"> $${\color{#ff0000}  𓉳   ☆ HE ﹒ ANY ⋆ 𓏵}$$
+<p align="center"> $${\color{#ff0000}  𓉳   ☆ HE ﹒ SHE ⋆ 𓏵}$$
 <p align="center"> $${\color{#ff0000}  mental\space\space illness\space\space variety\space\space pack}$$
 <p align="center"> $${\color{#ff0000}   𓏵 ﹒⋆  Whose  Eye  Is  It  Anyway  ??? ☆﹒𓉳}$$  
 
