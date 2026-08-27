@@ -24,7 +24,7 @@
 
 <p align="center"> $${\color{#ff0000}  𓉳   ☆ HE ﹒ ANY ⋆ 𓏵}$$
 <p align="center"> $${\color{#ff0000}  mental\space\space illness\space\space variety\space\space pack}$$
-<p align="center"> $${\color{#ff0000}   𓏵 ﹒⋆  the   Red   one  ☆﹒𓉳}$$  
+<p align="center"> $${\color{#ff0000}   𓏵 ﹒⋆  Whose  Eye  Is  It  Anyway  ??? ☆﹒𓉳}$$  
 
 <p align="center">
 <h4 align="center"
