@@ -15,12 +15,6 @@
 <p align="center">
 <h4 align="center"
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0d61n41fs9uil4v1zzs33g21h&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=0d61n41fs9uil4v1zzs33g21h&redirect=true)
-
-
-<p align="center">
-<h4 align="center"
-  
 ![chain black](https://i.postimg.cc/NFWrBf12/tumblr-d8f2adad98845a94ce9715475c1e8676-5a625ade-500.gif)![chain black](https://i.postimg.cc/NFWrBf12/tumblr-d8f2adad98845a94ce9715475c1e8676-5a625ade-500.gif)
             
  <p align="center"> 
@@ -41,6 +35,11 @@
 
 <p align="center">$${\color{#ff0000}★ ⋆ ★ ⋆ ★ ★ ⋆ ★ ⋆ ★  ﹒ ⋆              ☆  𓏵}$$
 <p align="center">$${\color{#ff0000} bi  ⋆  aspec  ⋆  irl⋆kinnie  ⋆ 2004}$$
+
+<p align="center">
+<h4 align="center"
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0d61n41fs9uil4v1zzs33g21h&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=0d61n41fs9uil4v1zzs33g21h&redirect=true)      
 
 <p align="center">
 <h4 align="center"
