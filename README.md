@@ -9,7 +9,7 @@
 <p align="center">
 <h4 align="center"
   
-   ![BORZ](https://i.postimg.cc/kXHbtD3Q/ezgif-26125cf44219b1f1.gif)
+   ![BORZ](https://i.postimg.cc/4Nq2JzPM/finred2.gif)
 
 <p align="center">
 <h4 align="center"
