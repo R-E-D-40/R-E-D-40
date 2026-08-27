@@ -24,7 +24,7 @@
 
 <p align="center"> $${\color{#ff0000}  𓉳   ☆ HE ﹒ ANY ⋆ 𓏵}$$
 <p align="center"> $${\color{#ff0000}  mental\space\space illness\space\space variety\space\space pack}$$
-<p align="center"> $${\color{#ff0000}   𓏵 ﹒⋆ . REPEAT   AFTER   ME . . . ☆﹒𓉳}$$  
+<p align="center"> $${\color{#ff0000}   𓏵 ﹒⋆  the   Red   one  ☆﹒𓉳}$$  
 
 <p align="center">
 <h4 align="center"
@@ -57,10 +57,20 @@
 
 ![chain black](https://i.postimg.cc/NFWrBf12/tumblr-d8f2adad98845a94ce9715475c1e8676-5a625ade-500.gif)![chain black](https://i.postimg.cc/NFWrBf12/tumblr-d8f2adad98845a94ce9715475c1e8676-5a625ade-500.gif)
 
+<p align="center"> $${\color{#ff0000} INTERESTS }$$
+
+<p align="center"> $${\color{#ff0000} Various\space Stuff\space  I'm\space  Into:\space\space ART!,\space\space MUSIC!!,\space\space Transformers,\space  Eddsworl,\space TGCF,\space MZDS,\space Genshin,}$$ 
+<p align="center"> $${\color{#ff0000} Lots\space of\space Anime/Danmei/Video\space Gaymes,\space\space the\space\space Unusual\space\space and\space\space Obscure,\space\space Many\space \space Many\space \space MANY\space \space MORE\space\space ASK\space\space ME!!}$$ 
+
+<p align="center"> 
+<h4 align="center"
+
+![chain black](https://i.postimg.cc/NFWrBf12/tumblr-d8f2adad98845a94ce9715475c1e8676-5a625ade-500.gif)!
+
 <p align="center">
 <h4 align="center"
   
-<p align="center"> $${\color{#ff0000} DISCLAIMERS}$$
+<p align="center"> $${\color{#ff0000} INFO}$$
 
 <p align="center">
 <h4 align="center"
@@ -68,7 +78,8 @@
 <p align="center"> $${\color{#ff0000} MDNI}$$
   <p align="center"> $${\color{#ff0000} Respect\space my\space boundaries,\space I\space respect\space yours\space !}$$
     <p align="center"> $${\color{#ff0000} if\space you\space have\space an\space issue,\space tell\space me\space directly\space !!}$$
-<p align="center"> $${\color{#ff0000} otherwise,\space\space fuck\space\space around\space\space and\space\space find\space\space out\space\space !!!}$$
+<p align="center"> $${\color{#ff0000} aside\space\space from\space\space that,\space\space i\space\space try\space\space my\space\space best\space\space to\space\space be\space\space friendly\space\space !!!}$$
+
 
 <p align="center">
 <h4 align="center"
