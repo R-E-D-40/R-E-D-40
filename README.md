@@ -102,7 +102,7 @@
 <p align="center"> $${\color{#ff0000}PS: im freaky.. but not THAT kind of freak.. dw}$$
   
 <p align="center"> $${\color{#ff0000}PPS: Rarely\space\space if\space\space ever\space\space am\space\space I\space\space in\space\space the\space\space loop\space\space of\space\space Ponytown\space\space Drama\space\space or\space\space Happenings,}$$
-<p align="center"> $${\color{#ff0000}its\space\space very\space\space likely\space\space i\space\space am\space\space clueless\space\space about\space\space people\space\space or\space\space their\space\space actions\space\space so\space\space I\space\space would\space\space prefer}$$
+<p align="center"> $${\color{#ff0000}its\space\space very\space\space likely\space\space I\space\space am\space\space clueless\space\space about\space\space people\space\space or\space\space their\space\space actions\space\space so\space\space I\space\space would\space\space prefer}$$
 <p align="center"> $${\color{#ff0000}I\space\space Not\space\space be\space\space associated\space\space with\space\space peoples\space\space actions\space\space and\space\space decisions\space\space that\space\space are\space\space NOT\space\space MY\space\space OWN...}$$
 <p align="center"> $${\color{#ff0000}Everyone\space\space is\space\space responsible\space\space for\space\space their\space\space own\space\space actions\space\space and\space\space they\space\space do\space\space not\space\space reflect\space\space me }$$
 <p align="center"> $${\color{#ff0000} and\space\space it\space\space doesn't\space\space mean\space\space I\space\space support\space\space them\space\space in\space\space any\space\space form!}$$
