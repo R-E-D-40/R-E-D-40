@@ -65,7 +65,13 @@
 
 <p align="center"> $${\color{#ff0000} INTERESTS }$$
 
-<p align="center"> $${\color{#ff0000} Various\space Stuff\space  I'm\space  Into:\space\space ART!,\space\space MUSICALS!!,\space\space Transformers,\space  Eddsworl,\space TGCF,\space MZDS,\space Genshin,}$$ 
+<p align="center">
+<h4 align="center"
+  
+![webfish](https://i.postimg.cc/fy2nGgZX/canvas222.png)
+
+<p align="center"> $${\color{#ff0000} MAN\space I\space LOVE\space FISHING!!!}$$
+<p align="center"> $${\color{#ff0000} Various\space Stuff\space  I'm\space  Into:\space\space ART!\space\space MUSICALS!!\space\space Transformers,\space  Eddsworl,\space TGCF,\space MZDS,}$$ 
 <p align="center"> $${\color{#ff0000} Lots\space of\space Anime/Danmei/Video\space Gaymes,\space\space the\space\space Unusual\space\space and\space\space Obscure,\space\space Many\space \space Many\space \space MANY\space \space MORE\space\space ASK\space\space ME!!}$$ 
 
 <p align="center"> 
@@ -81,7 +87,7 @@
 <p align="center">
 <h4 align="center"
   
-<p align="center"> $${\color{#ff0000} MDNI}$$
+<p align="center"> $${\color{#ff0000} MDNI,\space general\space DNI\space criteria.\space (common\space sense)}$$
   <p align="center"> $${\color{#ff0000} Respect\space my\space boundaries,\space I\space respect\space yours\space !}$$
     <p align="center"> $${\color{#ff0000} if\space you\space have\space an\space issue,\space tell\space me\space directly\space !!}$$
 <p align="center"> $${\color{#ff0000} aside\space\space from\space\space that,\space\space i\space\space try\space\space my\space\space best\space\space to\space\space be\space\space friendly\space\space !!!}$$
@@ -93,7 +99,13 @@
 ![MEAT](https://i.postimg.cc/LXLTrwdT/ash-tray-by-king-lulu-deer-dc15xyd.gif)
 
   
-<p align="center"> $${\color{#ff0000} im freaky.. but not THAT kind of freak.. dw}$$
+<p align="center"> $${\color{#ff0000}PS: im freaky.. but not THAT kind of freak.. dw}$$
+  
+<p align="center"> $${\color{#ff0000}PPS: Rarely\space\space if\space\space ever\space\space am\space\space I\space\space in\space\space the\space\space loop\space\space of\space\space Ponytown\space\space Drama\space\space or\space\space Happenings,}$$
+<p align="center"> $${\color{#ff0000}its\space\space very\space\space likely\space\space i\space\space am\space\space clueless\space\space about\space\space people\space\space or\space\space their\space\space actions\space\space so\space\space I\space\space would\space\space prefer}$$
+<p align="center"> $${\color{#ff0000}I\space\space Not\space\space be\space\space associated\space\space with\space\space peoples\space\space actions\space\space and\space\space decisions\space\space that\space\space are\space\space NOT\space\space MY\space\space OWN...}$$
+<p align="center"> $${\color{#ff0000}Everyone\space\space is\space\space responsible\space\space for\space\space their\space\space own\space\space actions\space\space and\space\space they\space\space do\space\space not\space\space reflect\space\space me }$$
+<p align="center"> $${\color{#ff0000} and\space\space it\space\space doesn't\space\space mean\space\space I\space\space support\space\space them\space\space in\space\space any\space\space form!}$$
 
 <p align="center">
 <h4 align="center"
